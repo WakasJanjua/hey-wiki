@@ -1,2 +1,7 @@
 # hey-wiki
-Just another repository
+
+I love tea
+
+I miss Pakistan
+
+Instead i love it
